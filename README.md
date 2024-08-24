@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... full stack development and programming
 - 🌱 I’m currently learning ... Btech CSE 
 - 💞️ I’m looking to collaborate on ... 
-- 📫 How to reach me ... find me
+- 📫 How to reach me ... 23BR15920@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ... I am cool and dedicated
 
